@@ -1,9 +1,9 @@
-# StarkRDP4 Free RDP 6 HOURS @DrStark_Noob ji ki taraf se
+# Free RDP for 6 HOURS by @pro_noober
 
 
-🍀Free RDP 6 HOURS🍀
+🔥 Free RDP 6 HOURS 🔥
 
-HOW TO CREATE StarkRDP
+HOW TO CREATE XtronsRDP
 
 >> Press the Fork button to create RDP (For Android / HP Users, Please Use Desktop Mode).
 
